@@ -72,6 +72,7 @@ Rölli Thomas - Abrahma
 Rieser Denise - DRieser
 ## S
 Sidler Anika - Anika95
+Schmid Gian-Luca - GianLucaS
 
 ## T
 
